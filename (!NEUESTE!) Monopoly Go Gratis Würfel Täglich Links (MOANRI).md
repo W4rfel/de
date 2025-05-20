@@ -1,4 +1,4 @@
-# (!NEUESTE!) Monopoly Go Gratis Würfel Täglich Links (MOANRI).md
+# (!NEUESTE!) Monopoly Go Gratis Würfel Täglich Links (MOANRI)
 
 ## [KLICKEN SIE HIER](https://lookerstudio.google.com/s/i0yFe1wQxjY)
 ## [KLICKEN SIE HIER](https://lookerstudio.google.com/s/i0yFe1wQxjY)
