@@ -1,4 +1,4 @@
-# (!DEUTCH!) Monopoly GO: Würfel-Links für tägliche Gratis-Würfel 2025 DE
+# (!NEUESTE!) Monopoly GO: Würfel-Links für tägliche Gratis-Würfel 2025 DE
 
 **Wie man kostenlos Würfel in Monopoly GO bekommt**
 
