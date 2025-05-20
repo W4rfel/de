@@ -1,4 +1,4 @@
-# (!DEUTCH!) Kostenlose Würfel Monopoly Go 2024 Deutsch [MNTOPA]
+# (!NEUESTE!) Kostenlose Würfel Monopoly Go 2024 Deutsch [MNTOPA]
 
 **Wie man kostenlose Würfel in Monopoly GO bekommt**
 
