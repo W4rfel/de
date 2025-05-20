@@ -1,4 +1,4 @@
-# (DEUTCH) Monopoly Go Würfel Gratis Bekommen [MAY_2025]
+# (NEUESTE) Monopoly Go Würfel Gratis Bekommen [MAY_2025]
 
 
 ## [KLICKEN SIE HIER](https://lookerstudio.google.com/s/i0yFe1wQxjY)
