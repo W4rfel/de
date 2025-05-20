@@ -1,4 +1,4 @@
-# (DEUTCH) Monopoly Gratis Würfel Links IOS Android [MAY_2025]
+# (NEUESTE) Monopoly Gratis Würfel Links IOS Android [MAY_2025]
 
 ## [KLICKEN SIE HIER](https://lookerstudio.google.com/s/i0yFe1wQxjY)
 ## [KLICKEN SIE HIER](https://lookerstudio.google.com/s/i0yFe1wQxjY)
